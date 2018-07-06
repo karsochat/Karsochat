@@ -1,0 +1,1 @@
+# Karsochat is a social media where family, friend and whole world come together and chat, video call i am from nigeria ive started this project but i cant finish it along if there is anyone interested let us work together you can contact me through my email address karso2007@gmail.com thanks 
